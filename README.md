@@ -4,7 +4,7 @@ Hi i'm Zero
 
 - 📫 Follow me on OF- i mean twtter/X  
 - 😄 Pronouns: Bug
-<b>- ⚡ Fun fact: For real!
+- ⚡ Fun fact: For real!
 
 <!---
 EntropyZER0/EntropyZER0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
